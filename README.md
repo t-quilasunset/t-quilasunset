@@ -22,6 +22,5 @@ my interests can be found HERE! ― https://pronouns.cc/@t_quilasunset
 <ul>
   <li>under 14</li>
   <li>often in drama/arguments</li>
-  <li>those with 'touch triggers'</li>
   <li>basic DNI criteria</li>
 </ul>
