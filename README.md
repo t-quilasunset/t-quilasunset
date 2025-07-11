@@ -1,4 +1,4 @@
-## ― “ CHALKBARDZ <em>!</em> ”
+## ― “ SUNRISE, PARABELLUM ”
 HEY PONY TOWN PLAYER!! here's some info just for you!
 <ul>
   <li>feel free to int with me, whether we share interests or not!!</li>
@@ -6,7 +6,7 @@ HEY PONY TOWN PLAYER!! here's some info just for you!
   <li>C+H and inspo is OKAY!!</li>
 </ul>
 <img src=https://drive.google.com/uc?export=view&id=1R2SBEqJ8FQz_DxNN4ZZc29w1xR-nUBW8>
-<h2>― “ ABOUT ME <em>!</em> ”</h2>
+<h2>― ABOUT ME <em>!</em></h2>
 <ul>
   <li>i'm <b>cam</b> or <b>krei <em>!</em></b></li>
   <em>――i'm 18 and i use any pronouns</em>
@@ -18,7 +18,7 @@ my interests can be found HERE! ― https://pronouns.cc/@t_quilasunset
   <p style="margin-bottom: 20px;"></p>
 </div>
 <img src=https://drive.google.com/uc?export=view&id=14om4XMPgQlRwev8pm5EIsHSqJPPAzuMo>
-<h2>― “ DNI <em>!</em> ”</h2>
+<h2>― DNI</h2>
 <ul>
   <li>under 14</li>
   <li>often in drama/arguments</li>
